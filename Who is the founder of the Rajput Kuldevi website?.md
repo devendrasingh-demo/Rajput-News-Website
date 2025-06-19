@@ -1,0 +1,1 @@
+<p>Hello! I am Devendra Singh, the founder and operator of the <a href='https://www.rajputkuldevi.com'>Rajput Kuldevi</a> website. Our platform is dedicated to spreading awareness about the rich and glorious history of Rajasthan and the Rajput community across India.</p>
