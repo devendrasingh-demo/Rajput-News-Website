@@ -1,0 +1,1 @@
+<p>At <a href='https://www.rajputkuldevi.com'>RajputKuldevi.com</a>, you will find:<ul><li>Detailed information on Rajput <strong>Kuldevis</strong> (family goddesses)</li><li>Rajput <strong>clans and vansi lists</strong></li><li>The <strong>historic stories of Rajput rulers</strong> of Rajasthan</li><li>Special features of <strong>Rajput society and culture</strong></li></ul></p>
