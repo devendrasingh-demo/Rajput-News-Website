@@ -1,0 +1,1 @@
+<p>The mission of <a href='https://www.rajputkuldevi.com'>RajputKuldevi.com</a> is to connect every Indian, especially the younger generation, with the proud Rajput heritage. In this digital age, we aim to make the valor and cultural legacy of Rajasthan and the Rajputs known across the country.</p>
