@@ -1,0 +1,1 @@
+<p>The main purpose of <a href='https://www.rajputkuldevi.com'>our website</a> is to present the heritage, traditions, and historical significance of Rajput clans, Kuldevis (family goddesses), and royal lineages in a simple and effective way, so that every individual can understand and appreciate this incredible culture.</p>
