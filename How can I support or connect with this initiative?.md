@@ -1,0 +1,1 @@
+<p>We invite you to become a part of our journey. By exploring, sharing, and supporting <a href='https://www.rajputkuldevi.com'>our website</a>, you help us preserve and promote the glorious Rajput history for future generations. Your support keeps this cultural flame alive.</p>
