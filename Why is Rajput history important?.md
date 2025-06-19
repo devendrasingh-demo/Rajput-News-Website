@@ -1,0 +1,1 @@
+<p>Rajput rulers born on the land of Rajasthan have played a crucial role in Indian history. With their bravery, sacrifice, and leadership, they brought pride to the entire nation. On <a href='https://www.rajputkuldevi.com'>our website</a>, we honor these stories, which serve as living examples of Indian values and traditions.</p>
